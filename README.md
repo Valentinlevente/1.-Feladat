@@ -1,4 +1,4 @@
-# Valentin Levente 
+# Valentin Levente aka Valentinusz
 
 
 ## Hogyan kezdj neki?
